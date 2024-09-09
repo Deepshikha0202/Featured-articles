@@ -5,7 +5,7 @@
 [LPO 2](https://www.linkedin.com/pulse/demystify-contract-management-everything-you-need-know-aeren-lpo-fpkbe/?trackingId=nWwgk7BNnwBxJ5aII5mZqw%3D%3D)
 
 # 7 Questions to Ask Before Outsourcing Payroll Processing!
-[Accoutning](https://www.linkedin.com/pulse/7-questions-ask-before-outsourcing-payroll-processing-indianmuneem-mi0nc/?trackingId=OOyes7YV9bsZy8M7vAlbjw%3D%3D)
+[Accounting](https://www.linkedin.com/pulse/7-questions-ask-before-outsourcing-payroll-processing-indianmuneem-mi0nc/?trackingId=OOyes7YV9bsZy8M7vAlbjw%3D%3D)
 
 # Need Last-Minute Tax Tips? Consider Outsourced Accounting Services for Better Returns!
-[Accoutning] (https://indianmuneem.com/need-last-minute-tax-tips-consider-outsourced-accounting-services-for-better-returns/)
+[Accounting] (https://indianmuneem.com/need-last-minute-tax-tips-consider-outsourced-accounting-services-for-better-returns/)
